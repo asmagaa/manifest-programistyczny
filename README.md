@@ -1,2 +1,3 @@
-# manifest-programistyczny
-2G
+# Manifest Programistyczno-Socjalistyczny 
+*2G*
+
